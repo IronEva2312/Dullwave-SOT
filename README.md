@@ -16,13 +16,13 @@
 
 ***Status: Working! ✅***
 
-![2](https://github.com/IronEva2312/Dullwave-SOT/assets/99816514/5be9ad44-2df8-4f03-8ea7-0889ae53828e)
+![3](https://github.com/IronEva2312/Dullwave-SOT/assets/99816514/6f35e0f0-7b2f-409f-bc80-c8c74d2aa4c5)
 
 # ⚙️Functions
 
 ***🌟HWID Changer INCLUDED!***
 
-![3](https://github.com/IronEva2312/Dullwave-SOT/assets/99816514/4ae598d3-1549-4d3c-a654-22aeadb2851a)
+![2](https://github.com/IronEva2312/Dullwave-SOT/assets/99816514/c06812e3-3fc9-4fb3-a1ba-09b55ab69e19)
 
 ### 📌PLAYER ESP
 
